@@ -12,7 +12,7 @@ jobs:
       contents: write
 
     steps:
-      - uses: actions/checkout@v4
+      - uses: actions/checkout@v5
 
       - uses: actions/setup-python@v5
         with:
@@ -27,7 +27,7 @@ jobs:
           python -m playwright install-deps chromium
 
       - name: Run archiver
-        run: python telegram/fetch_telegram_pw.py
+        run: python .github/script/fetch_telegram_pw.py
 
       - name: Commit and push changes
         env:
