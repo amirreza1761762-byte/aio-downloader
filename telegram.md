@@ -7,6 +7,267 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/18 19:02
+---
+
+## mwarmonitor — post 8706
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«روز شلوغ خارگ 🇮🇷 جزیره خارگ امروز. دو نفتکش VLCC، یک نفتکش Suezmax و یک نفتکش ساحلی در حال بارگیری مشاهده شدند. یک خطا - حادثه در یکی از VLCCها در مختصات 29.2309, 50.2837 منجر به نشت نفت خام شد. ❗️معلوم نیست میزان نشت چقدر است، چون بیشتر چیزی که دیده می‌شود…
+</div>
+
+## pm_afshaa — post 90371
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ به تعداد محدود موجود شد
+
+5 گیگ کانفیگ 1 تومن
+10گیگ کانفیگ 1800 تومن
+20 گیگ کانفیگ 3500 تومن
+کانفیگ نامحدود هم 6 تا مونده فقط 8 میلیون تومن یک‌ماهه 5 کاربره
+
+✅بدون ضریب
+✅با لینک ساب
+✅کاربر نامحدود
+✅زمان‌نامحدود
+
+@Aliirezaaa_Vpn98
+</div>
+
+## FarsiVOA — post 217200
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺توقف دو نفتکش با پرچم ایران پس از شلیک ارتش آمریکا
+
+◾️نیروهای ایالات متحده روز جمعه ۱۸ اردیبهشت، دو نفتکش ایرانی را پیش از ورود به یکی از بنادر ایران در دریای عمان از کار انداختند. این اقدام در چارچوب اجرای محاصره دریایی جمهوری اسلامی صورت گرفته است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/8148005.html
+</div>
+
+## DW_Farsi — post 124452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 آلمان و وابستگی مبرم آن به پزشکان خارجی
+
+کانال اول تلویزیون آلمان در گزارشی به موضوع کمبود پزشک در این کشور و علل وابستگی رو به رشد آن به پزشکان خارجی پرداخته است.
+
+ماتیاس ووت، مدیر کلینیک هارتس در کوئدلین‌بورگ (Quedlinburg) آلمان در شرح این موضوع می‌گوید: «بدون پزشکان خارجی، بخش بزرگی از بیمارستان‌های آلمان دیگر قادر به فعالیت نخواهند بود.»
+
+حدود یک‌سوم کادر پزشکی کلینیک او را مهاجران تشکیل می‌دهند. چنین آماری، به‌ویژه در خارج از شهرهای بزرگ، مدت‌هاست که به یک امر عادی تبدیل شده است.
+
+به گفته او، در حال حاضر بیش از ۵۰هزار پزشک فاقد تابعیت آلمانی، کمبود نیروی انسانی را جبران می‌کنند. این در حالی است که تعداد پزشکان شاغل در آلمان بیش از هر زمان دیگری است.
+
+کریستیان کاراگیانیدیس نیز که خود متخصص مراقبت‌های ویژه و عضو کمیسیون دولتی برای اصلاحات ساختاری سیستم بیمارستانی آلمان بوده است می‌گوید: «اگر به تعداد پزشک نسبت به جمعیت نگاه کنیم، آلمان به همراه اتریش در صدر جدول جهانی قرار دارند. این یعنی در مجموع، ما در واقع بیش از حد نیاز، پزشک در اختیار داریم.»
+
+با این حال به گفته کریستیان کاراگیانیدیس، ساختار ناکارآمد بیمارستان‌ها باعث می‌شود که آلمان نتواند با وجود تراکم بالای پزشک در حال حاضر حدود ۶هزار پست خالی در کلینیک‌ها را پر کند: «ما در آلمان متأسفانه با پدیده همزمان خدمات بیش از حد، خدمات ناکافی و خدمات نادرست مواجه هستیم.»
+
+او وجود یک‌هزار و ۷۰۰ بیمارستان در سراسر کشور را در مقایسه با استانداردهای بین‌المللی "بسیار زیاد" می‌داند و در عین حال یادآور می‌شود که با این حال، در برخی مناطق روستایی آلمان کمبود پزشک وجود دارد.
+
+اینا ویاروکینا، پزشک دستیار در بخش مراقبت‌های ویژه در کوئدلین‌بورگ، روزانه چندین ساعت را صرف ثبت پرونده‌ها و کارهای اداری می‌کند.
+
+این پزشک ۴۵ ساله هفت سال پیش از بلاروس به آلمان آمد. او که در بلاروس حقوق‌‌ ماهیانه‌اش حدود ۱۷۰ یورو بود سرانجام برای فراهم کردن زندگی بهتر برای خود و دو دخترش همسر و وطنش را ترک کرد و در اواخر دهه ۳۰ سالگی خود زبان آلمانی را آموخت.
+
+کانال اول تلویزیون آلمان در گزارش خود می‌نویسد، در درازمدت، به‌ویژه بیمارستان‌های کوچک به متخصصان مهاجری مانند اینا ویاروکینا وابسته خواهند ماند.
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 19807
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19807_1778254358.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ویدئوی جنجالی وزارت دفاع آمریکا از پرونده‌های UFO که تازه افشا شده!
+
+تو سال ۲۰۱۳، یه شیء ستاره‌مانند با حرکات زیگزاگی سریع و نامنظم توی آسمون معلق بود و می‌چرخید ! ی سری مدارک دیگم هست که از داخل سایت میتونید ببینید
+
+war.gov/UFO
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19806
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19806_1778254359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+«همون‌طور که قول داده بودم، وزارت جنگ اولین بخش از پرونده‌های UFO/UAP رو برای بررسی و مطالعه عموم منتشر کرده. برای شفافیت کامل و حداکثری، به دولت خودم دستور دادم اسناد مربوط به موجودات فضایی، حیات فرازمینی، پدیده‌های ناشناس هوایی و بشقاب‌پرنده‌ها شناسایی و منتشر بشن.
+
+دولت‌های قبلی توی این موضوع شفاف عمل نکردن، اما حالا با انتشار این اسناد و ویدیوها، مردم خودشون می‌تونن تصمیم بگیرن که «بالاخره چه خبره؟!»
+
+خوش بگذره !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19805
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/19805" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 19804
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19804_1778254360.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+ge18
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## configx2ray — post 38658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🍆نزدیک 7 عدد npv tunell . Npsternet گذاشتیم منطقه ای وصله ولی صدرصد وصل میشه فقط یکم زمان بدید بزنید اتصال بشه بیاید تلگرام یکم بمونید تا اوکی بشه
+❤️
+
+پخش کردن یادتون نره بفرستید تا همه وصل بشن
+❤️
+</div>
+
+## configx2ray — post 38657
+
+<div align="center">
+  <a href="https://t.me/ConfigX2ray/38657" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ برای Npv tunnel ⭕️
+
+به هیچ وج دانلود نزنید باهاش
+❤️
+
+رمز فایل : @ConfigX2ray
+
+Channel : https://t.me/ConfigX2ray
+</div>
+
+## configx2ray — post 38656
+
+<div align="center">
+  <a href="https://t.me/ConfigX2ray/38656" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ برای Npv tunnel ⭕️
+
+به هیچ وج دانلود نزنید باهاش
+❤️
+
+رمز فایل : @ConfigX2ray
+
+Channel : https://t.me/ConfigX2ray
+</div>
+
+## configx2ray — post 38655
+
+<div align="center">
+  <a href="https://t.me/ConfigX2ray/38655" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ برای Npv tunnel ⭕️
+
+به هیچ وج دانلود نزنید باهاش
+❤️
+
+رمز فایل : @ConfigX2ray
+
+Channel : https://t.me/ConfigX2ray
+</div>
+
+## configx2ray — post 38654
+
+<div align="center">
+  <a href="https://t.me/ConfigX2ray/38654" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ برای Npv tunnel ⭕️
+
+به هیچ وج دانلود نزنید باهاش
+❤️
+
+رمز فایل : @ConfigX2ray
+
+Channel : https://t.me/ConfigX2ray
+</div>
+
+## configx2ray — post 38653
+
+<div align="center">
+  <a href="https://t.me/ConfigX2ray/38653" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ برای Npv tunnel ⭕️
+
+به هیچ وج دانلود نزنید باهاش
+❤️
+
+رمز فایل : @ConfigX2ray
+
+Channel : https://t.me/ConfigX2ray
+</div>
+
+## alonews — post 118694
+
+<div align="center">
+  <a href="telegram/content/alonews_118694_1778254363.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برزیل اولین مورد ویروس هانتا را تایید کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/18 18:52
 ---
 
